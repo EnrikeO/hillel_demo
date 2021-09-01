@@ -1,4 +1,0 @@
-gnwkl
-gvknrwl
-vnla
-nfck
